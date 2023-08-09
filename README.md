@@ -1,1 +1,1 @@
-# Kandinsky-
+# Kandinsky
